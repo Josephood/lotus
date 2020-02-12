@@ -305,7 +305,7 @@ Links:
 
 ### Nomkaz
 
-You may have seen his name pop up a few hundred times when browsing the [Skyrin: Special Edition](https://www.loverslab.com/files/category/163-skyrim-special-edition/) category on LoversLab. This dude converted everything. Check his profile and leave a nice comment for all his work!
+You may have seen his name pop up a few hundred times when browsing the [Skyrim: Special Edition](https://www.loverslab.com/files/category/163-skyrim-special-edition/) category on LoversLab. This dude converted everything. Check his profile and leave a nice comment for all his work!
 
 - [LL Profile](https://www.loverslab.com/profile/2695162-nomkaz/)
 
